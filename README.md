@@ -1,1 +1,0 @@
-# 061_RushikKheni
